@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @re-Push
+- 👀 I’m interested in League of Legends and TFT
+- 🌱 I’m currently learning Python, Web development, and Linux because I am going to take lesson about web cloud service soon
+- 💞️ I’m looking to collaborate on anyone like beginer or senior. I'm trying to practice my cording skill
+- 📫 How to reach me ... you can send me DM like instagram or kakao.
+- here's my adress. Instagram[re_Push__], kakao[rkd9312], E-mail adress[cang9312@naver.com]
